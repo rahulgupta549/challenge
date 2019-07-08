@@ -45,10 +45,3 @@ Good luck.
 
 You can find more info on us here:
 
-* https://causecode.com
-* https://www.linkedin.com/company/causecode
-* https://www.facebook.com/causecode/
-* https://twitter.com/causecode
-* https://www.instagram.com/causecode/
-* https://plus.google.com/u/1/b/100959550068865457513/+CausecodeTechnologiesPune/posts
-* https://www.youtube.com/watch?v=rIa6u2soUkw
